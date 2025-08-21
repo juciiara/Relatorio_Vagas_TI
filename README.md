@@ -34,4 +34,5 @@ Se quiser trocar ideias sobre QA, desenvolvimento ou mercado de TI, pode me cham
 
 - ✉️ **Email:** juciarae.c@gmail.com  
 - 💼 **LinkedIn:** [linkedin.com/in/juciara-e-c](https://www.linkedin.com/in/juciara-e-c)  
-- 📱 **WhatsApp:** (11) 96284-9255  
+📱 [WhatsApp](https://wa.me/5511962849255)
+
